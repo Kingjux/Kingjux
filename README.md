@@ -2,7 +2,7 @@
 [![MasterHead](https://i.imgur.com/AUF5CCo.jpeg)](https://github.com/Kingjux)
 
 
-<h1 align="center"><b>нγ, ι αм иανєє∂ Venocyber tech  </b><img src="https://giphy.com/gifs/hallmarkecards-cute-hallmark-shoebox-2A75RyXVzzSI2bx4Gj" width="35"></h1>
+<h1 align="center"><b>нγ, ι αм Mr Venocyber tech African coders  </b><img src="https://giphy.com/gifs/hallmarkecards-cute-hallmark-shoebox-2A75RyXVzzSI2bx4Gj" width="35"></h1>
 
 
 <p align="center">
